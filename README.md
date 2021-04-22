@@ -1,2 +1,1 @@
-## KIRINUS Digital
 
